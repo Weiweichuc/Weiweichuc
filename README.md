@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me: Don't.
 - 😄 Pronouns: He/they
-- ⚡ Fun fact: I'm gay
+- ⚡ Fun fact: I'm gay, demisexual and non-binary
 
 <!---
 Weiweichuc/Weiweichuc is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
